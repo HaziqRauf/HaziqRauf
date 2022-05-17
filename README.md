@@ -1,4 +1,4 @@
-## Hi there 👋, I'm Haziq Rauf
+## Hi there 👋, I'm Haziq Rauf aka Jimbo 🤟
 
 :zap: GitHub Stats
 
